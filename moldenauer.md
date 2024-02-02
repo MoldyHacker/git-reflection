@@ -2,4 +2,4 @@
 Christopher Moldenauer
 
 ## Hobbies
-Rock climbing
+Rock climbing, Travel
